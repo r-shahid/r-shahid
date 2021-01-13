@@ -6,5 +6,4 @@ To see more of my work, click [here](https://r-shahid.github.io):
 
 [![](https://res.cloudinary.com/rshahid/image/upload/v1607217615/portfolio/project_images_7_lr5pdv.png)](https://r-shahid.github.io)
 
-
 [LinkedIn](https://www.linkedin.com/in/rianashahid) | [Email](mailto:info@rianashahid.com) | [Twitter](https://twitter.com/RianaShahid) | [Instagram](https://instagram.com/rianashahid)
